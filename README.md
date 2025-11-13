@@ -1,1 +1,1 @@
-visit yusufyukar.com
+yusufyukar.com
